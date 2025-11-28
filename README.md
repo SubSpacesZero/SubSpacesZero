@@ -3,7 +3,6 @@
 
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=subspaces0&label=Profile%20views&color=0e75b6&style=flat" alt="subspaces0" /> </p>
 
-![Image](https://github.com/user-attachments/assets/b14553e7-0156-4dc0-a77d-b254f56218d9)
 
 - !! ' I’m currently working on my own Roblox games **"Echoes of the Hunt'**
 
