@@ -34,7 +34,7 @@
 
                             ..  𝗖𝗛𝗔𝗣𝗧𝗘𝗥  II__  :    The Close End The Entry Of DataBase  :
                             
-  : Note !! of my Dni 
+  : Notes !! 
 
 
   
