@@ -32,7 +32,7 @@
 
 '' ⛔ :  this is where you need to be close with me and iwec as im unstable and can snap, or just busy with so much things and need to focus on it.. but if i have c+h it mean i not unstable just busy with works !! so yes ill love the company if you choice to c+h with me  when i have this statues !! ''
 
-                            ..  𝗖𝗛𝗔𝗣𝗧𝗘𝗥  II__  :    The Close End The Entry Of DataBase  :
+                            ..  𝗖𝗛𝗔𝗣𝗧𝗘𝗥  III  :    The Close End The Entry Of DataBase  :
                             
   : Notes !! 
 
@@ -52,7 +52,7 @@
 
 '' AND OMG YES I LOVE MATCHING SO COME ON YOU CAN ASK ME TO MATCH IF I COULD !!
 
-                                 ..  𝗖𝗛𝗔𝗣𝗧𝗘𝗥  I  :    The End of this entry.　　  
+                                 ..  𝗖𝗛𝗔𝗣𝗧𝗘𝗥  IV  :    The End of this entry.　　  
   
 <h3 align="left">Connect with me:</h3>
 <p align="left">
