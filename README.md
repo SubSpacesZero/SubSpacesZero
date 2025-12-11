@@ -36,7 +36,21 @@
                             
   : Notes !! 
 
+'' as i stated yes, you can int but ill be moslty awkward when you int first so bear with me ok !! 
 
+'' I love c+h and chatti if we have the same interest into smt i can be both a yapper and listener just when u want me to listen just tell me you want to talk first !!
+
+'' Do NOT demain me to respo as it make me uncomf to int you and may not to be reach your expectations.
+
+'' please when you see me with friend be mindful with their names ok, if they have any like dniup or just ask you not get near us i'd prefer you dont come near but w2i if you want to just int with me just dont expect e to respo fast as i may be talking to multiple people !! so be patients ^_^ !!
+
+'' yes i am a developer, voice actor and game designer so if you ask me am i avalible to do this 3? yes i am as long i dont have any work in hand !! but if i do then no i cant help sorry ^_^u
+
+'' And yes im a multishipper !! i love my ship but i wont say them but if you want to know please int to ask when im free!!
+
+'' Proshipper please leave me alone,,
+
+'' AND OMG YES I LOVE MATCHING SO COME ON YOU CAN ASK ME TO MATCH IF I COULD !!
   
 <h3 align="left">Connect with me:</h3>
 <p align="left">
