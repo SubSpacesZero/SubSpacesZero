@@ -28,6 +28,8 @@
 
 "DNIUC : almost teh same as DNIUF but more know me and closer to me like best friend, family and ect, but if you just a normal friend ill just not respo back so please imsorry if you try to int when i have this statues as when i have this im having a episode where who close will know how to handle it."
 
+"OFFTAB : moslty on other webside / app so best to get a respo is by w2i !! and yes anyone can int when it just this just w2i is more high chances to get a respo while just chat wont get any because i never see it so SORRY if you didin't whisper and get no respo !!"
+
 '' ⛔ : 
 
 
