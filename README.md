@@ -51,6 +51,8 @@
 '' Proshipper please leave me alone,,
 
 '' AND OMG YES I LOVE MATCHING SO COME ON YOU CAN ASK ME TO MATCH IF I COULD !!
+
+                                 ..  𝗖𝗛𝗔𝗣𝗧𝗘𝗥  I  :    The End of this entry.　　  
   
 <h3 align="left">Connect with me:</h3>
 <p align="left">
