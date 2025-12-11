@@ -1,4 +1,4 @@
-
+<img width="2048" height="2048" alt="Image" src="https://github.com/user-attachments/assets/93ab68b0-5462-4a35-ae0c-cd83eac24b4e" />
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
