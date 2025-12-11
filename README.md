@@ -4,7 +4,7 @@
 
   :!! " Hello welcome to my database of public informasion that you can read and know about me and what i can share to you, please process to read this database as you wiling to read and understand and how to interact with me
 
-'' :for when you need to call me by name simplly you can call me by Kimally , Kim , ally, / zero or my what charakter im using when you int  with me !! ''
+'' :for when you need to call me by name simplly you can call me by Kimally , Kim , ally, / zero or my what charakter im using when you int with me !! and any nickname you make for me it appreciateded as long it not disrespecful or smt like unappropriate that all so be free and express yourself as freely as you want and get conf !! ''
 
 
 <h3 align="left">Connect with me:</h3>
