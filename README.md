@@ -10,6 +10,13 @@
 
 '' Languages used : Indonesian, English, (a bit of spanish, russian, and german but struggle ALOT !! so please if i mistaken what you said as this two languages please tell me!! ''
 
+
+
+
+                                ..  𝗖𝗛𝗔𝗣𝗧𝗘𝗥  II  :    The Database.   :
+  : !! " My Statues !! (please read this before int me !! ^o^ 
+
+  
 <h3 align="left">Connect with me:</h3>
 <p align="left">
 <a href="https://twitter.com/@orx_valley" target="blank"><img align="center" src="https://raw.githubusercontent.com/rahuldkjain/github-profile-readme-generator/master/src/images/icons/Social/twitter.svg" alt="@orx_valley" height="30" width="40" /></a>
