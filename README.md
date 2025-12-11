@@ -30,7 +30,7 @@
 
 "OFFTAB : moslty on other webside / app so best to get a respo is by w2i !! and yes anyone can int when it just this just w2i is more high chances to get a respo while just chat wont get any because i never see it so SORRY if you didin't whisper and get no respo !!"
 
-'' ⛔ : 
+'' ⛔ :  this is where you need to be close with me and iwec as im unstable and can snap, or just busy with so much things and need to focus on it.. but if i have c+h it mean i not unstable just busy with works !! so yes ill love the company if you choice to c+h with me  when i have this statues !! ''
 
 
   
