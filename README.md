@@ -2,10 +2,13 @@
 
                                  ..  𝗖𝗛𝗔𝗣𝗧𝗘𝗥  I  :    The “Introduction”.　　  
 
-  :!! " Hello welcome to my database of public informasion that you can read and know about me and what i can share to you, please process to read this database as you wiling to read and understand and how to interact with me
+  :!! " Hello welcome to my database of public informasion that you can read and know about me and what i can share to you, please process to read this database as you wiling to read and understand and how to interact with me "
 
-'' :for when you need to call me by name simplly you can call me by Kimally , Kim , ally, / zero or my what charakter im using when you int with me !! and any nickname you make for me it appreciateded as long it not disrespecful or smt like unappropriate that all so be free and express yourself as freely as you want and get conf !! ''
+'' name : simplly you can call me by Kimally , Kim , ally, / zero or my what charakter im using when you int with me !! and any nickname you make for me it appreciateded as long it not disrespecful or smt like unappropriate that all so be free and express yourself as freely as you want and get conf !! ''
 
+'' Prounouce : Any prounce is that you call me is welcome !! and for clarification, i am a Nonbinary so any prounce of your choice is very welcome !! ''
+
+'' Languages used : Indonesian, English, (a bit of spanish, russian, and german but struggle ALOT !! so please if i mistaken what you said as this two languages please tell me!! ''
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
