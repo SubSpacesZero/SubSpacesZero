@@ -2,6 +2,7 @@
 
                                  ..  𝗖𝗛𝗔𝗣𝗧𝗘𝗥  I  :    The “Introduction”.　　  
 
+
   :!! " Hello welcome to my database of public informasion that you can read and know about me and what i can share to you, please process to read this database as you wiling to read and understand and how to interact with me "
 
 '' name : simplly you can call me by Kimally , Kim , ally, / zero or my what charakter im using when you int with me !! and any nickname you make for me it appreciateded as long it not disrespecful or smt like unappropriate that all so be free and express yourself as freely as you want and get conf !! ''
@@ -11,10 +12,25 @@
 '' Languages used : Indonesian, English, (a bit of spanish, russian, and german but struggle ALOT !! so please if i mistaken what you said as this two languages please tell me!! ''
 
 
-
-
                                 ..  𝗖𝗛𝗔𝗣𝗧𝗘𝗥  II  :    The Database.   :
+
+  
   : !! " My Statues !! (please read this before int me !! ^o^ 
+
+'' 🟢 : Available but unsure if ill respo as sometimes i forget to cahnce states,, cries so w2i if you unsure ill se your chat or respo !! ''
+
+'' 🌙 : i Used this alot if you see me alot using this moon when im moslty be semi afk or just can be afk anytimes but you still can int but if i dont repon or chat just please wi2 to leave a message to me to read and when i came back ill soon as possible responded if your not offline !! but if i went off with no respo that mean i forget to put busy statue or just choice to not respo because i am in no good mood but c+h is free as long im alone !! c+h is always welcome and encouraged but if i have smt in my name as exsample below :
+
+" DNI : mean just dont int as im not in a mood to be int and will be agressive when you try to int. so if you have when i said Dni im so sorry because it just i was not in a mood and already warming you not to in my name ,,"
+
+" DNIUF : mean i dont want any random people to int only my friend so sorry but no i dont want get int by anyone then my friend if i have this statues and you who not my friend try to int will moslty get ghosted or just ill move away."
+
+"DNIUP : is just the same as DNIUF but if your in my party im in yes you can int but if not please no leave me alone,, !!"
+
+"DNIUC : almost teh same as DNIUF but more know me and closer to me like best friend, family and ect, but if you just a normal friend ill just not respo back so please imsorry if you try to int when i have this statues as when i have this im having a episode where who close will know how to handle it."
+
+'' ⛔ : 
+
 
   
 <h3 align="left">Connect with me:</h3>
