@@ -11,7 +11,7 @@
 '' Languages used : Indonesian, English, (a bit of spanish, russian, and german but struggle ALOT !! so please if i mistaken what you said as this two languages please tell me!! ''
 
 
-                                ..  𝗖𝗛𝗔𝗣𝗧𝗘𝗥  II  :    The Database  :
+                                ..  𝗖𝗛𝗔𝗣𝗧𝗘𝗥  II  :    The Database.  
 
   
   : !! " My Statues !! (please read this before int me !! ^o^ 
@@ -32,7 +32,7 @@
 
 '' ⛔ :  this is where you need to be close with me and iwec as im unstable and can snap, or just busy with so much things and need to focus on it.. but if i have c+h it mean i not unstable just busy with works !! so yes ill love the company if you choice to c+h with me  when i have this statues !! ''
 
-                            ..  𝗖𝗛𝗔𝗣𝗧𝗘𝗥  III  :    The Close End The Entry Of DataBase  :
+                            ..  𝗖𝗛𝗔𝗣𝗧𝗘𝗥  III  :    The Close End The Entry Of DataBase.
                             
   : Notes !! 
 
