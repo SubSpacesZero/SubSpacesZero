@@ -10,6 +10,8 @@
 
 '' Languages used : Indonesian, English, (a bit of spanish, russian, and german but struggle ALOT !! so please if i mistaken what you said as this two languages please tell me!! ''
 
+[Notes : i highly recomments when reading my statues as ⛔ as iwec because most 20% i forget to make it a moon LOL I HAVE MEMORY LOST SO I NEED MY FRIEND TO REMIND ME TO CHANGE IT PLZ JUST ASK IF IM BUSY OR NOT WHEN YOU FELT INT WITH ME !!]
+
 
                                 ..  𝗖𝗛𝗔𝗣𝗧𝗘𝗥  II  :    The Database.  
 
