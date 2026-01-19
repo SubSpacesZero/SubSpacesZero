@@ -55,6 +55,8 @@
 '' AND OMG YES I LOVE MATCHING SO COME ON YOU CAN ASK ME TO MATCH IF I COULD !!
 
                                  ..  𝗖𝗛𝗔𝗣𝗧𝗘𝗥  IV  :    The End of this entry.　　
+                                 
+  <img width="551" height="706" alt="Image" src="https://github.com/user-attachments/assets/f1311875-52d1-4b97-b9b5-fbc8cd72cbdb" />
   
 <h3 align="left">Connect with me:</h3>
 <p align="left">
